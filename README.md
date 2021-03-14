@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @alisdairrankine
+- 👀 I’m nerding out on all software, but with a special obsession with games, retail/commerce and everything in between 
+- 📫 catch me on [twitter](https://twitter.com/alisdairrankine)
